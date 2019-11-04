@@ -1,1 +1,2 @@
-# Resonance-Mathematics-Study-Materials
+<h2> Resonance Mathematics Study Materials</h2>
+<p><strong>Engineering and Medical</strong> being one of the most competitive exams needs through preparation.&nbsp; <strong>Resonance Mathematics Study Materials</strong> help you to enhance and sharpen your preparation for JEE Main and Advanced exam and provide you the revision notes of <strong>Mathematics</strong>. It is really an asset to those who plan to appear in various Competitive/Entrance Examinations. This comprehensive book has mainly and deliberately been designed to cater to the long-felt needs of the students studying in college and universities, including the prospective candidates for competitive exams.</p>
